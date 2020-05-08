@@ -1,5 +1,5 @@
 # Making Backpacks
 
-## [Sewing patterns](pattern.md)
+## [Sewing patterns](patterns.md)
 
 ## [Videos](videos.md)
