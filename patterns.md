@@ -46,6 +46,12 @@ Free pattern from Ander, pattern is in swedish.
 
 ![Bag Buff - Simple Series Backpack Pattern](https://u4d3600axq-flywheel.netdna-ssl.com/wp-content/uploads/2018/10/BB-SB-IMG-11-1080-1024x1024.jpg)
 
+### Learn MYOG - Trail Running Backpack Pattern
+[https://www.learnmyog.com/trailRunningBackpack.html](https://www.learnmyog.com/trailRunningBackpack.html)
+
+![Trail Running Backpack Pattern](https://www.learnmyog.com/images/trailRunBackpack/thumbs/DSC00398.jpg)
+
+
 ## Paper Patterns
 
 Paper sewing patterns
