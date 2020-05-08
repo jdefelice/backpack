@@ -6,7 +6,7 @@
 PDF sewing patterns
 
 
-### Desmond Roll Top Backpack Pattern
+### Taylor Tailor - Desmond Roll Top Backpack Pattern
 [https://www.taylortailor.com/shop/patterns/desmond-roll-top-backpack-pattern/](https://www.taylortailor.com/shop/patterns/desmond-roll-top-backpack-pattern/)
 
 ![Desmond Roll Top Backpack Pattern](https://www.taylortailor.com/wp-content/uploads/2015/09/desmond-front.jpg)
@@ -14,6 +14,24 @@ PDF sewing patterns
 The Desmond backpack is perfect for your next adventure, whether that be a weekend getaway, trip to the market, or commute to the office. It’s big enough for all of your essentials, but small enough to use as an airplane carry-on, easily fitting in under seat storage as well as in over-head bin space.
 
 A simplified design features a roll top closure, zipper pocket on the front for smaller items, and two slip pockets on the sides. The pack is fully lined with additional open top pockets on the inside.
+
+### Anders Jonsson - BC18 Backpack 
+[http://andersj.se/backpack-bc-18/](http://andersj.se/backpack-bc-18/)
+
+![BC18 Backpack](http://andersj.se/wp-content/uploads/2018/07/1230729-768x960.jpg)
+
+### Anders Jonsson - BC12 Backpack
+[http://andersj.se/backpack_bc_12/](http://andersj.se/backpack_bc_12/)
+
+![BC12 Backpack](http://andersj.se/wp-content/uploads/2019/03/1320059-768x960.jpg)
+
+
+### Anders Jonsson - Backpack - light model # 1
+[http://andersj.se/ryggsack-lightmodell-nr-1/](http://andersj.se/ryggsack-lightmodell-nr-1/)
+
+![C18 Backpack](http://andersj.se/wp-content/uploads/old_site/ryggsacken1/rygga2_ny.jpg)
+
+Free pattern from Ander, pattern is in swedish.
 
 
 ## Paper Patterns
