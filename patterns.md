@@ -14,3 +14,23 @@ PDF sewing patterns
 The Desmond backpack is perfect for your next adventure, whether that be a weekend getaway, trip to the market, or commute to the office. It’s big enough for all of your essentials, but small enough to use as an airplane carry-on, easily fitting in under seat storage as well as in over-head bin space.
 
 A simplified design features a roll top closure, zipper pocket on the front for smaller items, and two slip pockets on the sides. The pack is fully lined with additional open top pockets on the inside.
+
+
+## Paper Patterns
+
+Paper sewing patterns
+
+### The Green Paper - 563 – Pioneer Rucksack Pattern
+[https://www.thegreenpepper.com/product/563-pioneer-rucksack-pattern/](https://www.thegreenpepper.com/product/563-pioneer-rucksack-pattern/)
+
+![563 – Pioneer Rucksack Pattern](https://www.thegreenpepper.com/wp-content/uploads/2014/06/563.gif)
+
+### The Green Paper - 203 – Drawstring Daypack Pattern
+[https://www.thegreenpepper.com/product/203-drawstring-daypack-pattern/](https://www.thegreenpepper.com/product/203-drawstring-daypack-pattern/)
+
+![203 – Drawstring Daypack Pattern](https://www.thegreenpepper.com/wp-content/uploads/2013/11/203.gif)
+
+### The Green Paper - 211 – Book Pack Pattern
+[https://www.thegreenpepper.com/product/211-book-pack/](https://www.thegreenpepper.com/product/211-book-pack/)
+
+![211 – Book Pack Pattern](https://www.thegreenpepper.com/wp-content/uploads/2013/11/211.gif)
