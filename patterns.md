@@ -11,8 +11,6 @@ PDF sewing patterns
 
 ![Desmond Roll Top Backpack Pattern](https://www.taylortailor.com/wp-content/uploads/2015/09/desmond-front.jpg)
 
-The Desmond backpack is perfect for your next adventure, whether that be a weekend getaway, trip to the market, or commute to the office. It’s big enough for all of your essentials, but small enough to use as an airplane carry-on, easily fitting in under seat storage as well as in over-head bin space.
-
 A simplified design features a roll top closure, zipper pocket on the front for smaller items, and two slip pockets on the sides. The pack is fully lined with additional open top pockets on the inside.
 
 ### Anders Jonsson - BC18 Backpack 
@@ -33,6 +31,20 @@ A simplified design features a roll top closure, zipper pocket on the front for 
 
 Free pattern from Ander, pattern is in swedish.
 
+### Bag Buff - Mountain Flyer DIY Ultralight Backpack Pattern – 34L
+[https://bagbuff.com/product/diy-ultralight-backpack-pattern](https://bagbuff.com/product/diy-ultralight-backpack-pattern)
+
+![Mountain Flyer DIY Ultralight Backpack Pattern – 34L](https://u4d3600axq-flywheel.netdna-ssl.com/wp-content/uploads/2018/10/mt-flyer-1-1.jpg)
+
+### Bag Buff - Mountain Flyer DIY Ultralight Backpack Pattern – 40L
+[https://bagbuff.com/product/mountain-flyer-diy-ultralight-backpack-pattern-40l](https://bagbuff.com/product/mountain-flyer-diy-ultralight-backpack-pattern-40l)
+
+![Mountain Flyer DIY Ultralight Backpack Pattern – 40L](https://u4d3600axq-flywheel.netdna-ssl.com/wp-content/uploads/2019/07/BB-PRJ-MF-BP-34-IMG-1-1.jpg)
+
+### Bag Buff - Simple Series Backpack Pattern
+[https://bagbuff.com/product/simple-diy-backpack-pattern](https://bagbuff.com/product/simple-diy-backpack-pattern)
+
+![Bag Buff - Simple Series Backpack Pattern](https://u4d3600axq-flywheel.netdna-ssl.com/wp-content/uploads/2018/10/BB-SB-IMG-11-1080-1024x1024.jpg)
 
 ## Paper Patterns
 
