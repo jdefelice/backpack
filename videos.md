@@ -13,3 +13,6 @@ https://www.youtube.com/channel/UCQ-y2zcVy5TKDYP_4Jobp1A
 
 ### ProperFit Clothing Co.
 https://www.youtube.com/channel/UCT_3WbJ28UkP3SJriQrn_-w
+
+### Ray Jardine
+http://www.rayjardine.com/ray-way/Videos/Backpack-Sewing-Video/index.htm
