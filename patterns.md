@@ -70,3 +70,11 @@ Paper sewing patterns
 [https://www.thegreenpepper.com/product/211-book-pack/](https://www.thegreenpepper.com/product/211-book-pack/)
 
 ![211 – Book Pack Pattern](https://www.thegreenpepper.com/wp-content/uploads/2013/11/211.gif)
+
+### GVP Gear - Ultralight Pack G4
+[https://www.backpacking.net/makegear.html](https://www.backpacking.net/makegear.html)
+
+![GVP Gear - Ultralight Pack G4](https://www.backpacking.net/makegear/gvp-pack/makeow3.jpg)
+
+
+
