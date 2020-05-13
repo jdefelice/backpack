@@ -76,5 +76,9 @@ Paper sewing patterns
 
 ![GVP Gear - Ultralight Pack G4](https://www.backpacking.net/makegear/gvp-pack/makeow3.jpg)
 
+### Rodney Liwanag's LAB Pack
+[https://thru-hiker.com/projects/lab_pack.php](https://thru-hiker.com/projects/lab_pack.php)
+
+![Rodney Liwanag's LAB Pack](https://thru-hiker.com/projects/images/LAB/big_labpack.jpg)
 
 
